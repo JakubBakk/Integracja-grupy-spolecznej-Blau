@@ -1,0 +1,1 @@
+# Integracja-grupy-spolecznej-Blau
